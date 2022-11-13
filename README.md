@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @AslonDlc
-- 👀 I’m interested in Anime & Game
+- 👀 I am interested in Anime and Games
